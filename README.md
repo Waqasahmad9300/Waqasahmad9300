@@ -13,7 +13,7 @@ You can click the Preview link to take a look at your changes.
 https://wa.me/3077889300
 
 *-Sbcribe my YouTube channel*
-https://youtube.com/channel/UCQ66_DJCtA_-azql_pxrQVA
+[https://youtube.com/channel/UCQ66_DJCtA_-azql_pxrQVA](https://www.youtube.com/@FFKashii)
 
 𝄆𝄞⋆🌼💜 [.🅛ᴏᴠᴇ.] ™🐬🌟𝄞𝄆
 00:00●━━━━━━━━━ 00:30
